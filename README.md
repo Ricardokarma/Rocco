@@ -1,0 +1,1 @@
+Rocco is the coin for dog lovers. Because we love dogs we want to donate a part of the profit to dog rescue centers. We will create a DAO in the Rocco foundation so everyone can vote which rescue centers we shall donate around the world. 
